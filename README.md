@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Ken
-- 👀 I’m interested in Devops and actively immersing in it
+- 👋 Hi, I’m Ken L
+- 👀 Reach out to me on Linkedin
