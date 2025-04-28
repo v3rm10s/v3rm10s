@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Ken L
-- 👀 Reach out to me on Linkedin
+- 👀 Reach out to me on Linkedin: https://www.linkedin.com/in/kok-hao-lim-a891b669/
